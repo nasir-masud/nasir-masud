@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nasir-masud
+- 👋 Hi, I’m [Mohammad nasir Uddin](@nasir-masud)
 - 👀 I’m interested in Scientific Ficional Story
 - 🌱 I wish I could learn till death
 - 💞️ I’m looking to collaborate on anything that suits me
